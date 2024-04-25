@@ -1,2 +1,2 @@
 # Project_Pink_Path
-Personal Project
+Personal Project by Gloria Dagrin
